@@ -1,0 +1,1 @@
+# shaxsiy-malumot
